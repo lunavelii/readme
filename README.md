@@ -1,12 +1,4 @@
-snjjsjsnjsnjdnsjdnjsjnjdsjdnsjndjsdnjsnjdsnjd
-w overwhelmed
-wwwwww
-qqqqqqqqqq
-nsjjnsjnjsjjw
-MY BRAIN HURTS
-sjkdjskjskjkdskjdksjkjbkjkbjk
+# Im looking for love and affection
 
-when will it end
-my brain is rotting
-everything hurts
-i am in immense pain
+- Discord: gaze#8845
+- twittr: twitter.com/itssGaze
